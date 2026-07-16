@@ -38,6 +38,8 @@
 
 ## 试单
 
+服务提供者：Funing Chen。
+
 请发送邮件至 [chenfuning0@gmail.com](mailto:chenfuning0@gmail.com?subject=%E9%87%87%E8%B4%AD%E6%9C%BA%E4%BC%9A%E9%9B%B7%E8%BE%BE%E8%AF%95%E5%8D%95)，主题写“采购机会雷达试单”，并说明你们能独立承接的服务类型和地区。
 
 确认购买后再提供付款方式。未确认购买前不会要求提供身份证、银行卡或采购平台账号。
