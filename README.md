@@ -4,6 +4,8 @@
 
 ## 299 元一次试单
 
+**[邮件咨询 / 确认购买 299 元试单](mailto:chenfuning0@gmail.com?subject=%E9%87%87%E8%B4%AD%E6%9C%BA%E4%BC%9A%E9%9B%B7%E8%BE%BE299%E5%85%83%E8%AF%95%E5%8D%95&body=%E5%85%AC%E5%8F%B8%E5%90%8D%E7%A7%B0%EF%BC%9A%0A%E5%8F%AF%E7%8B%AC%E7%AB%8B%E6%89%BF%E6%8E%A5%E7%B1%BB%E5%9E%8B%EF%BC%9A%0A%E5%8F%AF%E6%89%BF%E6%8E%A5%E5%9C%B0%E5%8C%BA%EF%BC%9A%0A%E6%98%AF%E5%90%A6%E7%A1%AE%E8%AE%A4%E8%B4%AD%E4%B9%B0299%E5%85%83%E8%AF%95%E5%8D%95%EF%BC%9A)**
+
 付款确认后 24 小时内交付 5 条全国公开机会。交付时，每条机会距离最早强制动作仍至少有 5 个完整工作日，并包含：
 
 - 预算或最高限价
